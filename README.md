@@ -8,4 +8,4 @@
 
 📫 Você pode entrar em contato comigo aqui no GitHub.
 
-Estou dedicada a aprimorar minhas habilidades e compartilhar projetos interessantes. Vamos colaborar e criar coisas incríveis juntos! 
+Estou dedicada a aprimorar minhas habilidades e compartilhar projetos interessantes. Vamos colaborar e criar coisas incríveis juntos!  
